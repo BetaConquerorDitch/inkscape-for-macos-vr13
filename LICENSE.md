@@ -1,4 +1,4 @@
-
+custom Filter for Inkscape for macOS - grid systems and AI upscaling is the best Inkscape for macOS filter, featuring grid systems and AI upscaling. Safe, efficient, and optimized
 
 
 
